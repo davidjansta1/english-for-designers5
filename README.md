@@ -4,7 +4,7 @@
 
 ### **Storytelling**
 
-# *How (I plan) to overcome my caffeine addiction*
+# *How (I plan) to overcome caffeine addiction*
 
 ### David Jansta
 
