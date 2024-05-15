@@ -2,6 +2,14 @@
 
 [Download link (google drive with 2 videos)](https://drive.google.com/drive/folders/1Arh4rxrYEhI-zx1yIGiop8S6Q13yiKxt?usp=sharing)
 
+### **Storytelling**
+
+## ~~*How to overcome caffeine addiction*~~
+
+# *How I plan to overcome my caffeine addiction*
+
+### David Jansta
+
 This presentation should have been about something totally different. Back then I made a brief presentation about how I mostly overcame my caffeine addiction, but since then something has totally changed. I slowly started to drink it a little bit more and now I'm on 3x coffees a day with some tea.
 
 I could call it a day and just read you my previous story, but no. Instead of how to overcome caffeine addiction, I will call it how I plan to overcome my caffeine addiction. If you have a problem with caffeine, it's fine to some extent, but I was drinking way too much. Like amount, that was actually extremely dangerous sometimes.
